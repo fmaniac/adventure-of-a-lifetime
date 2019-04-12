@@ -1,2 +1,2 @@
 # adventure-of-a-lifetime
-My lifetime adventures
+My lifetime 'adventures'
