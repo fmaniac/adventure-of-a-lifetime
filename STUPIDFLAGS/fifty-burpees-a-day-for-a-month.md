@@ -1,6 +1,9 @@
+【:bowtie:】
+
 At least 50 burpees a day no matter how tired I am.
 
 ======Notes @20190924
+
 任务完成-后30天每天都有视频记录，待整理，学学剪辑然后放到B站去~~~
 
 From 2019-07-09 to 2019-08-09
